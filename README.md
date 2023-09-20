@@ -1,0 +1,2 @@
+# BotZynX
+Have Fun
